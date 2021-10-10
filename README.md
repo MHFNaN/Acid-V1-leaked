@@ -1,2 +1,3 @@
 # Acid-V1-leaked
-Acid client v1.0.1 leak
+get jebaited nerd never leak shit\
+lmaooooooo
